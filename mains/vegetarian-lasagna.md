@@ -13,7 +13,7 @@
 - **250g ** mincwd meat
 - **1** bell pepper, diced
 - **1** small onion, diced
-- **2-3 cloves** garlic, minced
+- **4-5 cloves** garlic, minced
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
