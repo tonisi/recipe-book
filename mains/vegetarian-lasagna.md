@@ -10,7 +10,7 @@
 - **1/2 cup** grated Parmesan cheese
 - **2 cups** shredded mozzarella cheese
 - **1 lb** fresh spinach, rinsed and chopped (or use frozen spinach, thawed and drained)
-- **1** medium zucchini, thinly sliced
+- **250g ** mincwd meat
 - **1** bell pepper, diced
 - **1** small onion, diced
 - **2-3 cloves** garlic, minced
