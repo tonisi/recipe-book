@@ -32,6 +32,9 @@
      dried oregano.
    - Remove from heat and set aside.
 
+2.1. ** Spice minced meat 
+   -  mix in pepper, salt and chili powder
+
 3. **Mix Cheeses:**
    - In a bowl, mix together the ricotta cheese, egg, half of the grated Parmesan cheese, and a pinch of salt and pepper. Set aside.
 
